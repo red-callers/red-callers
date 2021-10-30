@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @red-callers
+- 👀 I’m interested in doing ur mum
+- 🌱 I’m currently learning how to not let you come out the next time
+- 💞️ I’m looking to collaborate on 6
+- 📫 How to reach me go to your mothers room when you here loud noises
